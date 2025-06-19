@@ -34,8 +34,6 @@ Video tutorials for assembly, connection, and  exploitation
 
 [RGB LED LIGHT CUBE TIMELAPSE BUILD SUR STUDIOS](https://youtu.be/-9CcqNvVHS4?si=dZPbkAFkEb3ERiqD)
 
-[15 button remote](https://youtu.be/plJmO6gk3sM?si=G4Bidx0-QKFGdW-2)
-
 [How to asamble Domaru](https://youtu.be/G7eT0Fj29ow?si=zdzD-R_aC5wdIUBa)
 
 [How to connect infinity figure](https://youtu.be/M_zlJWgwvAE?si=u2MycUH2uAnX3hmp)
