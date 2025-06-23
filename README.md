@@ -21,6 +21,12 @@ Video tutorials for assembly, connection, and  exploitation
 
 [5-Meter tail assembly](https://youtu.be/2FDsEh37Vrk?si=y9P85a_xKsiR678q)
 
+[Mirror Ballerina Costume with a Crown](https://youtu.be/2FDsEh37Vrk?si=y9P85a_xKsiR678q)
+
+[Mirror Scorpion Costume](https://drive.google.com/file/d/1rB43UVOrqCYeBRGQOvigh9htOvcRT7Gu/view?usp=drive_link)
+
+[Mirror Costume Carousel with Horses on the Skirt](https://drive.google.com/file/d/1JhU-1yEVXqT4C9lsH0gORe4uYRX4bN36/view?usp=drive_link)
+
 </details>
 
 <details>
@@ -177,5 +183,11 @@ Video tutorials for assembly, connection, and  exploitation
 [LED costume S60-2](https://drive.google.com/drive/folders/1n72abeL718HdvDOBrQ_umavTnLib5OOr?fbclid=IwY2xjawK-NiJleHRuA2FlbQIxMQABHlsWQKZvu1uZ39fgE8qK40IT23w1yE2QD2evb7Cct4avfZzjpf18v83_mPUU_aem_UViqNghCs1ZNZlAglOD5vQ)
 
 [Smart LED Halo H57](https://drive.google.com/drive/folders/1vd4TLSrA_SA-w3F7lxRFAa0BC7V2HMH6?fbclid=IwY2xjawK-NiJleHRuA2FlbQIxMQABHlsWQKZvu1uZ39fgE8qK40IT23w1yE2QD2evb7Cct4avfZzjpf18v83_mPUU_aem_UViqNghCs1ZNZlAglOD5vQ)
+
+[Silver Mirror Butterfly Wings with LEDs](https://drive.google.com/file/d/1bEf2gMvitVYeOyMABM-B4_ZWqlohzA1R/view?usp=drive_link)
+
+[Smart Pixel Fairy Cosplay Angel Wings](https://drive.google.com/file/d/1-s3WoX2ynHlLZo40gmcq6FzTOhwvPCM-/view?usp=drive_link)
+
+[LED Helmet in the Shape of an Eye](https://drive.google.com/file/d/16bo0CqngAetPotned0BF4uJlmZnvlEQ0/view?usp=drive_link)
 
 </details>
