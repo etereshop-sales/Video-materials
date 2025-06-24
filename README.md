@@ -21,6 +21,8 @@ Video tutorials for assembly, connection, and  exploitation
 
 [5-Meter tail assembly](https://youtu.be/2FDsEh37Vrk?si=y9P85a_xKsiR678q)
 
+[Disco ball mirror dress costume](https://drive.google.com/file/d/1NhjdSiLbqAl9K2ggkOlgnA8_uGnDjKkK/view?usp=drive_link)
+
 [Mirror Ballerina Costume with a Crown](https://drive.google.com/file/d/1SMcuyFekIxktd46xc6ofT0QfFhzKmrrn/view?usp=drive_link)
 
 [Mirror Scorpion Costume](https://drive.google.com/drive/folders/1-GBjXqxE_RRrJvUgtDvZ8D7dhYcklSEC?usp=sharing)
@@ -193,5 +195,21 @@ Video tutorials for assembly, connection, and  exploitation
 [Smart Pixel Peacock Fantail](https://drive.google.com/drive/folders/1hfmHY4YUDkSVgkBZj6pWRuHWUStkjeYq?usp=sharing)
 
 [Smart Pixel Costume Glowing Flower Dress](https://drive.google.com/drive/folders/12PKBATy-wdyOhlRAoNWtJsi6SV8Zz0oe?usp=sharing)
+
+[LED light up Snowflake Costume](https://drive.google.com/drive/folders/1pQOE0yN3kNdteTvnr67wBXong-Om9D3_?usp=sharing)
+
+[LED Screen Logo Glasses Line Model](https://drive.google.com/drive/folders/1K6G83V54BdtERGexDQ6aIDoXY6Ol9k72?usp=sharing)
+
+[Smart LED Belly dance Rainbow wings](https://drive.google.com/drive/folders/1bE6QNjk7QE4zxNKw9BXakCEbcCX4PwIM?usp=sharing)
+
+[Dance LED light up double-sided](https://drive.google.com/drive/folders/1n72abeL718HdvDOBrQ_umavTnLib5OOr?usp=sharing)
+
+[Adult LED Stage Dress Flower](https://drive.google.com/drive/folders/1fU_WfBbsq2PqjxIboTykY98qSAhUQ9LZ?usp=sharing)
+
+[Adult LED Stage Dress Flower part 2](https://drive.google.com/drive/folders/1Yi8vQVZD9DuI2Txvzo5eoEqUwwv10e0I?usp=sharing)
+
+[Smart Burlesque LED Fans with Feathers](https://drive.google.com/drive/folders/14_JNi7zla15KbU7FQUmIymJVl4J7OYf2?usp=sharing)
+
+
 
 </details>
