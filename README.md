@@ -212,6 +212,6 @@ Video tutorials for assembly, connection, and  exploitation
 
 [SMART LED light up dress – Do-maru with wide strips](https://drive.google.com/drive/folders/1EhJ7Eix_p5wrDw1YOw61nnelVgm8ZODy?usp=sharing) 
 
-[Ursula Dress (OT100)](https://drive.google.com/file/d/1nj0cJzMEtCRHgx4uMSANUoyPYGeQKOYD/view?usp=drive_link)
+[Ursula Dress (OT100)](https://drive.google.com/drive/folders/19YvtGaXeDPqDPNEwE55o_z6IzET_NEiu?usp=sharing)
 
 </details>
