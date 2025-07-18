@@ -214,4 +214,5 @@ Video tutorials for assembly, connection, and  exploitation
 
 [Ursula Dress (OT100)](https://drive.google.com/drive/folders/19YvtGaXeDPqDPNEwE55o_z6IzET_NEiu?usp=sharing)
 
+[Small peacock tail , SMART model 650 LEDs for bodybuilder (P15)](https://drive.google.com/drive/folders/1pLbvQonL2Bq5K8XakYYPDUn5ds16GzIp?usp=sharing)
 </details>
