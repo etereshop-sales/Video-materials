@@ -216,4 +216,6 @@ Video tutorials for assembly, connection, and  exploitation
 
 [Small peacock tail , SMART model 650 LEDs for bodybuilder (P15)](https://drive.google.com/drive/folders/1pLbvQonL2Bq5K8XakYYPDUn5ds16GzIp?usp=sharing)
 
+[Custom vest with triangle (C46)](https://drive.google.com/drive/folders/17vl46JBE2k8HY_DP5KypDtCpR5LgELK5)
+
 </details>
