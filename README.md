@@ -200,7 +200,7 @@ Video tutorials for assembly, connection, and  exploitation
 
 [LED Screen Logo Glasses Line Model](https://drive.google.com/drive/folders/1K6G83V54BdtERGexDQ6aIDoXY6Ol9k72?usp=sharing)
 
-[Smart LED Belly dance Rainbow wings](https://drive.google.com/drive/folders/1bE6QNjk7QE4zxNKw9BXakCEbcCX4PwIM?usp=sharing)
+[Smart LED Belly dance Rainbow wings (B05)](https://drive.google.com/file/d/1fVACZKQp8eM9GwWzectAPNu1ptphbhU1/view?usp=sharing)
 
 [Dance LED light up double-sided](https://drive.google.com/drive/folders/1n72abeL718HdvDOBrQ_umavTnLib5OOr?usp=sharing)
 
