@@ -54,7 +54,7 @@ Video tutorials for assembly, connection, and  exploitation
 
 [LED Screen Helmet connection H12](https://youtu.be/bbX6KYSK1RU?si=djppOfMmVW904CyZ)
 
-[Small Peacock tails assembly](https://youtu.be/s3CwzR4u69Q?si=XawLWjxlKa4c_lEX)
+[Small Peacock tails assembly (P48)](https://drive.google.com/file/d/1uBmTpE2RzaZT0SMU2xf_LGRS6RsaVi2f/view?usp=sharing)
 
 [Led tail 650, straps](https://youtu.be/aVx6U1rTmgM?si=qmmsFJDZFZc7N3JO)
 
