@@ -218,6 +218,6 @@ Video tutorials for assembly, connection, and  exploitation
 
 [Custom vest with triangle (C46)](https://drive.google.com/drive/folders/17vl46JBE2k8HY_DP5KypDtCpR5LgELK5)
 
-[Ultra Smart LED Rainbow Screen Mask 144 LED](https://drive.google.com/file/d/1v8iWEiYre2brKAMLMUwsfIdJhw_BsV__/view?usp=sharing)
+[Ultra Smart LED Rainbow Screen Mask 144 LED {H69}](https://drive.google.com/file/d/1v8iWEiYre2brKAMLMUwsfIdJhw_BsV__/view?usp=sharing)
 
 </details>
