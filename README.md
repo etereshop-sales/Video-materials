@@ -220,4 +220,6 @@ Video tutorials for assembly, connection, and  exploitation
 
 [Ultra Smart LED Rainbow Screen Mask 144 LED {H69}](https://drive.google.com/file/d/1v8iWEiYre2brKAMLMUwsfIdJhw_BsV__/view?usp=sharing)
 
+[LED vest (S118)](https://drive.google.com/drive/folders/1EnhPhqkA84RJmNYfHB7BTmTm6zxvXK7j)
+
 </details>
