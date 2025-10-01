@@ -222,4 +222,6 @@ Video tutorials for assembly, connection, and  exploitation
 
 [LED vest (S118)](https://drive.google.com/file/d/1FlC7MIdwHpbUsTDi2NqVuV-baoom4y_u/view?usp=sharing)
 
+[Aerial SMART LED light up gymnastics costume suit (I07)](https://drive.google.com/file/d/1j-QGq_vd8IEjsfTYC1Pq1m0BAbPgY4XJ/view?usp=sharing)
+
 </details>
