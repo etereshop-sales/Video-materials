@@ -224,4 +224,8 @@ Video tutorials for assembly, connection, and  exploitation
 
 [Aerial SMART LED light up gymnastics costume suit (I07)](https://drive.google.com/file/d/1j-QGq_vd8IEjsfTYC1Pq1m0BAbPgY4XJ/view?usp=sharing)
 
+[SMART LED infinity rectangle with LED strips (P38-1)](https://drive.google.com/file/d/1iy973MD90gfTSlWzE--6r8ghVzDvdoxA/view?usp=sharing)
+
+[Giant Human-Sized LED Infinity Mirror Dodecahedron (N13-1)]()
+
 </details>
