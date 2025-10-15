@@ -226,6 +226,6 @@ Video tutorials for assembly, connection, and  exploitation
 
 [SMART LED infinity rectangle with LED strips (P38-1)](https://drive.google.com/file/d/1iy973MD90gfTSlWzE--6r8ghVzDvdoxA/view?usp=sharing)
 
-[Giant Human-Sized LED Infinity Mirror Dodecahedron (N13-1)]()
+[Giant Human-Sized LED Infinity Mirror Dodecahedron (N13-1)](https://drive.google.com/drive/folders/166m4BZLFkURFYrwJtMs_nRmiILTYFxNX)
 
 </details>
