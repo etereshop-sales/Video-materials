@@ -232,4 +232,5 @@ Video tutorials for assembly, connection, and  exploitation
 
 [Custom peacock sun tail (O526)](https://drive.google.com/file/d/1Hwz4XX6mOgwoh3lWtX_Ekr0rm7PH1YZ0/view?usp=sharing)
 
+[Custom LED Racing Helmet (S110)](https://drive.google.com/file/d/1ayFIgfb1MZqCx7mdsQEaHIL95ITQNEJu/view?usp=sharing)
 </details>
