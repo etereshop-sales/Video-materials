@@ -210,7 +210,7 @@ Video tutorials for assembly, connection, and  exploitation
 
 [Smart Burlesque LED Fans with Feathers](https://drive.google.com/drive/folders/14_JNi7zla15KbU7FQUmIymJVl4J7OYf2?usp=sharing)
 
-[SMART LED light up dress – Do-maru with wide strips](https://drive.google.com/drive/folders/1EhJ7Eix_p5wrDw1YOw61nnelVgm8ZODy?usp=sharing) 
+[SMART LED light up dress – Do-maru with wide strips (H39-2)](https://drive.google.com/drive/folders/1EhJ7Eix_p5wrDw1YOw61nnelVgm8ZODy?usp=sharing) 
 
 [Ursula Dress (OT100)](https://drive.google.com/drive/folders/19YvtGaXeDPqDPNEwE55o_z6IzET_NEiu?usp=sharing)
 
