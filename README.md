@@ -29,6 +29,8 @@ Video tutorials for assembly, connection, and  exploitation
 
 [Mirror Costume Carousel with Horses on the Skirt](https://drive.google.com/file/d/1JhU-1yEVXqT4C9lsH0gORe4uYRX4bN36/view?usp=drive_link)
 
+[Mirror Jack-O-Lantern Costume (S95)](https://drive.google.com/drive/folders/1D1TbGKaZ39Ib7Ii5KII6ygQhlAavw60J?usp=sharing)
+
 </details>
 
 <details>
