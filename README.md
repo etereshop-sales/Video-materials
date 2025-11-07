@@ -230,4 +230,6 @@ Video tutorials for assembly, connection, and  exploitation
 
 [Infinity crown for Donny Dinh (N26)](https://drive.google.com/file/d/1988DIZDfSI59EpbksTr8KL3I6wsqy2r8/view?usp=sharing)
 
+[Custom peacock sun tail (O526)](https://drive.google.com/file/d/1Hwz4XX6mOgwoh3lWtX_Ekr0rm7PH1YZ0/view?usp=sharing)
+
 </details>
