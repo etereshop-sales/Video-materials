@@ -11,7 +11,7 @@ Video tutorials for assembly, connection, and  exploitation
 
 [Ballerinas belt](https://youtu.be/4mvva7lvemM?si=SHuODZmF_DzRru2I)
 
-[Small mirror wings assembly](https://youtu.be/W8okOcRC3Sw?si=Uv8Tp7AFqqaidT0N)
+[Small mirror wings assembly (M84)](https://youtu.be/W8okOcRC3Sw?si=Uv8Tp7AFqqaidT0N)
 
 [Big Mirror Butterfly Wings assembly](https://youtu.be/W8okOcRC3Sw?si=OVxPXehTkHIMEBTV)
 
